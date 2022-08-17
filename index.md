@@ -1,4 +1,4 @@
 ## Welcome to cherrydarling7's Blog
 
-*我好爱这个世界啊*
+*每个人心中都有一团火，路过的人只看到烟*
 
