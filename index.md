@@ -1,4 +1,4 @@
-## Welcome to cherrydarling7's Blog
+## Welcome to JJのBlog!!　
 
 *每个人心中都有一团火，路过的人只看到烟*
 
